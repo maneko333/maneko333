@@ -1,6 +1,6 @@
-# 🐈‍⬛ Hello, Wanderer 💫  
+# 🐈‍⬛ Hello 💫  
 
-I’m maneko—a self-taught and aspiring **developer, game dev, and pixel artist**.
+I’m maneko—a self-taught and aspiring **game and web developer**.
 
 ## 🦇 What I Love 
 🖤 **Old Web** - Big soft spot for the old times, including clunky personal pages.  
