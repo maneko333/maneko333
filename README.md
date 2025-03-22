@@ -4,7 +4,7 @@ I’m maneko—a self-taught and aspiring **game and web developer**.
 
 ## 🦇 What I Love 
 🖤 **Old Web** - Big soft spot for the old times, including clunky personal pages.  
-🖤 **Web Development** – Creating online diarys and journals for you to girlblog your heart out.  
+🖤 **Web Development** – Creating online diaries and journals for you to girlblog your heart out.  
 🖤 **Pixel Art** – Because tiny, moody sprites deserve all the love too.  
 
 ## 🌙 Forever Learning  
