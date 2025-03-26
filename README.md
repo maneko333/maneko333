@@ -10,7 +10,7 @@ I’m maneko—a self-taught and aspiring **game and web developer**.
 ## 🌙 Forever Learning  
 I am always looking for ways to forge and develop new skills or hobbies. Never bored over here!
 
-## 🔮 Seeking Kindred Spirits  
+## 🔮 Wanna chat?
 Freelance work? Collabs? Chatting about cute aesthetics and game mechanics? I’m always up for it. Let’s create something cool together.  
 
 💌 [**Summon me**](mailto:maneko333@protonmail.com)
